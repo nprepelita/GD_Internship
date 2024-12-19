@@ -1,0 +1,1 @@
+Today 19 December 2024 is GridDynamics Christmas party celebration
